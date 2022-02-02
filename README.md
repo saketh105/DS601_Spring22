@@ -18,6 +18,8 @@ Office Hours: https://calendly.com/msarica1/15min
 
 E-mail: mehmet.sarica@umbc.edu
 
+Materials: https://drive.google.com/drive/folders/1f8OBdc1u2lWKQi5M9Z19UJOUP-N3_v9m
+
 ## Q&A and Discussions
 
 We will be using Blackboard for email, questions, and class discussions. Rather than emailing questions, I highly encourage you to post your questions on Blackboard.
